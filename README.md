@@ -22,7 +22,19 @@ Description.
 ## Lyrics
 
 ```
+raised in the cold
+you know i sold my soul
 
+pinned to the cross
+i spill my only words
+
+never enough of open doors
+i reach for the handles torn
+will there be some _____- to grasp
+
+
+crushed all the bones to naysayers 
+it's the bass that i'm drop
 
 ```
 
