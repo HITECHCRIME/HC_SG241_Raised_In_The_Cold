@@ -27,11 +27,14 @@ you know i sold my soul (aaaaaaaaah scream)
 pinned to the cross 
 i spill my only words to date
 it's death i hate
+it fills me with rage
+against the dying of light
+again and again
 
 follow me, cradle me to the light
 never enough of open doors
 i reach for the handles torn
-will there be some _____- to grasp
+will there be some _____- to grasp - mourn
 
 
 crushed all the bones to naysayers 
