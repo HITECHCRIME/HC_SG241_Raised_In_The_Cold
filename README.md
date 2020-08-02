@@ -22,12 +22,13 @@ Description.
 ## Lyrics
 
 ```
-raised in the cold
-you know i sold my soul
+raised in the cold 
+you know i sold my soul (aaaaaaaaah scream)
+pinned to the cross 
+i spill my only words to date
+it's death i date
 
-pinned to the cross
-i spill my only words
-
+follow me to the light
 never enough of open doors
 i reach for the handles torn
 will there be some _____- to grasp
@@ -35,6 +36,8 @@ will there be some _____- to grasp
 
 crushed all the bones to naysayers 
 it's the bass that i'm drop
+brushed with the nails, what you saying
+it doesn't make sense
 
 ```
 
