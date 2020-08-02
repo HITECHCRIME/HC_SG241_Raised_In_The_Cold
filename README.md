@@ -26,9 +26,9 @@ raised in the cold
 you know i sold my soul (aaaaaaaaah scream)
 pinned to the cross 
 i spill my only words to date
-it's death i date
+it's death i hate
 
-follow me to the light
+follow me, cradle me to the light
 never enough of open doors
 i reach for the handles torn
 will there be some _____- to grasp
