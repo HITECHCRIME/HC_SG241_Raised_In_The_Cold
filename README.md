@@ -26,7 +26,7 @@ raised in the cold
 you know i sold my soul aah
 pinned to the cross 
 i spill my only words to date
-it's death i hate
+it's death i hate (this is the death i hate)
 it fills me with rage
 (withness to dying light) against the dying of light
 again and again and again
