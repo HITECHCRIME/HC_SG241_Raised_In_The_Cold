@@ -1,6 +1,6 @@
 [cover code] ![](57175019_319474918741616_8502199518755923887_n.jpg)
 
-# ARTIST_ TITLE
+# MOTHNODE_ Raised In The Cold
 
 **Listen now:** 
 
@@ -23,7 +23,7 @@ Description.
 
 ```
 raised in the cold 
-you know i sold my soul (aaaaaaaaah scream)
+you know i sold my soul aah
 pinned to the cross 
 i spill my only words to date
 it's death i hate
@@ -37,10 +37,10 @@ i reach for the handles torn
 will there be some _____- to grasp - mourn
 
 
-crushed all the bones to naysayers 
+crushed all the bones to naysayers will mourn
 it's the bass that i'm drop
 brushed with the nails, what you saying
-it doesn't make sense
+it doesn't make sense to us
 
 ```
 
