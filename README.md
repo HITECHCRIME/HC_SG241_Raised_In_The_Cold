@@ -28,8 +28,8 @@ pinned to the cross
 i spill my only words to date
 it's death i hate
 it fills me with rage
-against the dying of light
-again and again
+(withness to dying light) against the dying of light
+again and again and again
 
 follow me, cradle me to the light
 never enough of open doors
