@@ -48,6 +48,8 @@ it doesn't make sense to us
 
 ## Music Video
 
+Futura christianity burning witches and mages. Vocalist burning on the cross, religion learning cold treatment, silencing the evil deeds of self.
+
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
