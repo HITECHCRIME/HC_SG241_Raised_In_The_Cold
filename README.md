@@ -25,7 +25,7 @@ Description.
 raised in the cold 
 you know i sold my soul aah
 pinned to the cross 
-i spill my only words to date
+i spill my only words to date (of late / of fate)
 it's death i hate (this is the death i hate)
 it fills me with rage
 (withness to dying light) against the dying of light
